@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Sangeeth (@sangeethvarma)
-- 👀 I’m interested in Physics, Philosophy, Political Economy
+- 👀 I’m interested in Physics, Philosophy, Political Economy and Political Ecology
 - 🌱 I’m currently learning Development Studies
 - 📫 sangeeth.s.varma@gmail.com
